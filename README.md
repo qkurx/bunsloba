@@ -1,3 +1,21 @@
+## <a href="https://shorten.is/nano">Slotbar SİTESİNE GİRİŞ İÇİN TIKLAYINIZ</a>
+
+<a href="https://shorten.is/nano"><img src="https://s7.gifyu.com/images/SX5dx.gif"></a>
+
+| %100 Hoşgeldin Spor Bonusu | %100 + 50 Freespin Slot Hoşgeldin Bonusu |
+|----------|----------|
+| [![Slotbar 1](https://i.ibb.co/w6Ms0n3/0-spor-hosgeldin.jpg)](https://shorten.is/nano) | [![Slotbar 2](https://i.ibb.co/SmhNkkF/ho-geldin-slot.jpg)](https://shorten.is/nano) |
+
+| Günlük 1 Milyon TL Çekim İmkanı | %15 Çevrimsiz Spor Bonusu |
+|----------|----------|
+| [![Slotbar 3](https://i.ibb.co/1sqbDKg/gates.jpg)](https://shorten.is/nano) | [![Slotbar 4](https://i.ibb.co/Smxn3qW/gates-of-bn.jpg)](https://shorten.is/nano) |
+
+| Yüksek Kazanç Oranı | Hızlı Çekim İmkanı |
+|----------|----------|
+| [![Slotbar 5](https://i.ibb.co/jwxwCmC/sweet.jpg)](https://shorten.is/nano) | [![Slotbar 6](https://i.ibb.co/SKbx3w4/Masalar-Canli-Casino-Mobil-Pop-Up.jpg)](https://shorten.is/nano) |
+
+<a href="https://shorten.is/nano"><img src="https://s13.gifyu.com/images/SXln5.gif"></a>
+
 # Slotbar’da Renkli ve Dinamik Bir Dünya Seni Bekliyor!
 
 Slotbar, oyunculara benzersiz bir deneyim sunan dinamik ve eğlenceli bir platformdur. Renkli grafikler, akıcı oynanış ve sürükleyici temalar ile dolu bu dünyada her an heyecan dolu dakikalar yaşarsınız. Eğer eğlenceyi ve kaliteli oyun deneyimini ön planda tutuyorsanız, doğru yerdesiniz!
